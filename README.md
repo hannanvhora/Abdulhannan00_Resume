@@ -3,7 +3,7 @@
 📍 Crawley, West Sussex, United Kingdom  
 📧 abdulhannan00@myyahoo.com  
 📞 07352 327791  
-🔗 LinkedIn: (add your profile link here)
+🔗 LinkedIn:https://www.linkedin.com/in/abdulhannan-vhora00/
 
 ---
 
